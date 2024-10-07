@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ABarracksRaTT
+- 👀 I’m interested in learning about expanding my knowlege on computers like a nerd
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me via email or here.
+- 😄 Pronouns: Mother-Board 
+- ⚡ Fun fact: Teemo main with 1,000,000 points. Sorry </3
